@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ton0Guima
+- 👀 I’m interested in  aprender mais sobre programaçao, ja vem de uns dias  que venho apaixonando pela area
+- 🌱 I’m currently learning  atravez de videos  , ando vendo bastante sobre engenharia de softwaew  
+- 💞️ I’m looking to collaborate on,  alguma oportunidade  de  ir aprendend , na pratica junto a  curso e ou graduaçao na area , sem atropelos , sei fundamentos básicos na area
+- 📫 How to reach me atravez do e-mail: toncontinuar@gmail.com
